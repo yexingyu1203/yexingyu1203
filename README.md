@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading and traveling.
 - 🌱 I’m currently learning English.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ...My QQ number is 351603635.
 
 <!---
 yexingyu1203/yexingyu1203 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
