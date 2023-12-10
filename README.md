@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yexingyu1203
+- 👋 Hi, I’m @yexingyu
 - 👀 I’m interested in reading and traveling.
 - 🌱 I’m currently learning English.
 - 💞️ I’m looking to collaborate on ...
